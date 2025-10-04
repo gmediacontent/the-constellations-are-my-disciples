@@ -1,1 +1,2 @@
-# the-constellations-are-my-disciples
+# The Constellations Are My Disciples
+Kim Hyuno n'aspire qu'à une chose : une vie paisible. Hélas, il trouve la mort après un combat acharné contre Bartché, le roi de la dévastation. Cependant, une nouvelle chance de réaliser son rêve lui est accordée lorsqu'il se réincarne trois-cents ans plus tard dans le corps de Kim Juhyeok. Malheureusement, son bonheur est de courte durée, car un mystérieux message lui annonce l'apparition prochaine de la tour de la destruction et lui demande de se mettre en quête de ses armes et de ses souvenirs. Pour cela, il devra intégrer Valhalla, la célèbre académie de chasseurs, où il fera des rencontres qui lui rappelleront son passé.
